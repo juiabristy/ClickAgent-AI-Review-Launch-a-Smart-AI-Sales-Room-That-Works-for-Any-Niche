@@ -148,7 +148,7 @@ OTO4: ClickAgent AI DFY Social Package Edition ($47)
 
 OTO5: ClickAgent AI Reseller Edition ($147)
 
->>> Click Here to Learn More and Get Started Today <<<
+**<a href='https://www.jabreview.com/clickagent-ai-review/'> >>> Get " ClickAgent AI " + $19k Exclusive Bonus to Boost Up Your Earnings and You Can’t Find These Bonuses Anywhere >>**
 
 **Money Back Guarantee ClickAgent AI**
 
